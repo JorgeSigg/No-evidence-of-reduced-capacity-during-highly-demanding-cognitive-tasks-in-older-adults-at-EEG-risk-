@@ -1,1 +1,1 @@
-Please be advised that the data base for the LASSI Test is blocked and will be released once Roa's et al. (in preparation) paper on the standarization and normalization of the LASSI for the mexican population has been published.  
+
